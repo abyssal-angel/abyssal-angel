@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/yvidy7.png)
+![](https://files.catbox.moe/y682wg.png)
 
 ⠀⠀⠀⠀
 
@@ -9,15 +9,17 @@
 
 
 
-![](https://files.catbox.moe/a4x6ww.jpg)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/ozdwjj.jpg)
 
 
 ⠀⠀
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[#ata](https://emisoaaa.atabook.org/)  ‎  ‎  ‎  ‎  ‎  ‎ [#pronoun](https://en.pronouns.page/@astraeterns)   ‎  ‎  ‎  ‎  ‎ [#straw](https://astrasoaa.straw.page)
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[#ata](https://emisoaaa.atabook.org/)  ‎  ‎  ‎  ‎  ‎  ‎ [#pronoun](https://en.pronouns.page/@astraeterns)   ‎  ‎  ‎  ‎  ‎ [#straw](https://astrasoaa.straw.page)
 
 
+.
 
 
 
@@ -27,6 +29,6 @@ DNI if toxicshippers, proshipper, haters and etc! i do not want to deal with you
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/igmkqn.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/igmkqn.png)
 
-![](https://files.catbox.moe/yvidy7.png)
+![](https://files.catbox.moe/g3yeu5.png)
