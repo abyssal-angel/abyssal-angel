@@ -1,34 +1,11 @@
-![](https://files.catbox.moe/y682wg.png)
-
-⠀⠀⠀⠀
-
-⠀⠀⠀⠀⠀⠀
+![](https://files.catbox.moe/e06avv.png)
 
 
-⠀⠀
+♡‎ ‎ ‎ ‎ ‎ *Mel* ![](https://files.catbox.moe/81ewcr.gif) or‎ ‎ Ilithyia *!* ![](https://files.catbox.moe/kwz7jx.gif)
 
+she/all⠀//⠀Y ⟢ B & Y ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4346.gif)
 
+⠀" What have you done? " . . . ![](https://files.catbox.moe/8767jj.gif)
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/ozdwjj.jpg)
-
-
-⠀⠀
-
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[#ata](https://emisoaaa.atabook.org/)  ‎  ‎  ‎  ‎  ‎  ‎ [#pronoun](https://en.pronouns.page/@Ilithyia)  ‎  ‎  ‎  ‎  ‎ [#straw](https://spawnprayerr.straw.page)
-
-
-.
-
-
-
-
-
-DNI if toxicshippers, proshipper, haters and etc! i do not want to deal with you guys. Feel free to c+h or have int with me, i am comfortable with that! but do NOT try copying my skins or take inspo before asking. the other info is in straw !! (´▽`ʃ♡ƪ)
-
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/igmkqn.png)
-
-![](https://files.catbox.moe/g3yeu5.png)
+﹑˖ ﾟ ⠀⠀[#ata](https://emisoaaa.atabook.org/)⠀𓏴⠀[#pronoun](https://en.pronouns.page/@Ilithyia)⠀𓏴⠀[#straw](https://spawnprayerr.straw.page)
