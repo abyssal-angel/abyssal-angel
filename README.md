@@ -8,4 +8,4 @@ she/all⠀//⠀Y ⟢ B & Y ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/
 ⠀" What have you done? " . . . ![](https://files.catbox.moe/8767jj.gif)
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 
-﹑˖ ﾟ ⠀⠀[#ata](https://ilithyiaaaa.atabook.org/)⠀𓏴⠀[#pronoun](https://en.pronouns.page/@Ilithyia)⠀𓏴⠀[#straw](https://spawnprayerr.straw.page)
+﹑˖  ⠀⠀[#ata](https://ilithyiaaaa.atabook.org/)⠀𓏴⠀[#pronoun](https://en.pronouns.page/@Ilithyia)⠀𓏴⠀[#straw](https://spawnprayerr.straw.page)
